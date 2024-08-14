@@ -1,4 +1,4 @@
-- 👋 Ola meu nome é nyrvier
+- 👋 Ola meu nome é Rayany
 - 👀 Sou estudante do 1ªB, na escola Leonardo vilas Boas, na cidade de Osasco/ SP
 - 🌱 Estou aprendendo a usar o alura e outras plataformas
 - 💞️ nas minhas horas vagas gosto de assistir filmes e series 
